@@ -1,3 +1,5 @@
+Just trying to make my life easier as a new after effects user :)
+
 # Levox's stats
 
 
